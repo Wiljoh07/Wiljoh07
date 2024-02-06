@@ -4,6 +4,7 @@ I'm gonna use github for my projects which I make in school or at home, all of m
 
 
 ↓ Contact me ↓
+
 Email 1: william.johansson@techie.com
 
 (Might add more later)
